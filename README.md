@@ -1,5 +1,5 @@
 # **Mrunmayi S. Kulkarni**
-![Image link](Image.pdf)
+![Image link](https://github.com/MrunmayiKulkarni/MrunmayiKulkarni.github.io/blob/main/Adobe%20Scan%2023-Apr-2023_page-0001%20(1)%20(1).jpg)
 
 ##  About Me
 ### I am a student at IIT Goa ( Indian Institute of Technology ,Goa) . I am pursuing BTech in Computer Science and Engineering . 
